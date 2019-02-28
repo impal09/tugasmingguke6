@@ -1,0 +1,1 @@
+# tugasmingguke6
